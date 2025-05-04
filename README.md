@@ -1,0 +1,1 @@
+la verdad apenas estoy aprendiendo sobre Github y realmente no se me ocurre que hacer con él por ahora, además, solo estoy acá porque algo pasa con el correo de la universidad por lo que no me deja acceder por ningún lado para hacer la tarea de herramientas para mañana. Y tengo pereza tbh
